@@ -2,9 +2,9 @@
 
 Welcome To Our Tiktok Generator.. Which is Generator more than 1000+ follower per Day.So click Here to Generate your tiktok follower and have fun.
 
-[⏭⏭☑️ Click Here To Generate⏮⏮☑️](https://shorturl.at/0shEz)
+[⏭⏭☑️ Click Here To Generate⏮⏮☑️](https://shorturl.at/8ZGGw)
 
-[⏭⏭☑️ Click Here To Generate⏮⏮☑️](https://shorturl.at/0shEz)
+[⏭⏭☑️ Click Here To Generate⏮⏮☑️](https://shorturl.at/8ZGGw)
 
 Here’s a draft for a post on generating TikTok followers. Let me know if you’d like any tweaks or if you’d like me to refine it further!
 
